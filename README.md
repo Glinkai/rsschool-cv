@@ -1,1 +1,1 @@
-https://glinkai.github.io/rsschool-cv/cv
+https://glinkai.github.io/rsschool-cv/
